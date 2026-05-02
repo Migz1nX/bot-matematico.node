@@ -1,1 +1,1 @@
-easy cracked
+lh.dev/net
